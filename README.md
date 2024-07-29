@@ -1,3 +1,3 @@
 - hola it's me MrMeems
 - I Can't Code
-- 🌱 I’m Pretty Sigma
+- I’m Pretty Sigma
